@@ -58,7 +58,7 @@ Ingredients:
 - 1 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
-- 1 jar (24 oz) spaghetti sauce
+- 5 jar (24 oz) spaghetti sauce
 
 Instructions:
 1. Cook spaghetti according to package instructions.
