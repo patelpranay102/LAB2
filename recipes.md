@@ -113,3 +113,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Chocolate Pots de Crème
+Ingredients:
+
+1½ cups heavy cream
+4 oz bittersweet chocolate, chopped
+3 egg yolks
+¼ cup sugar
+1 tsp vanilla extract
+
+Instructions:
+
+Heat cream until just boiling. Remove from heat, add chocolate, stir until smooth.
+Whisk egg yolks and sugar, then temper with chocolate mixture.
+Strain and pour into ramekins.
+Bake in a water bath at 325°F (160°C) for 30–35 mins.
+Chill and top with whipped cream.
+
